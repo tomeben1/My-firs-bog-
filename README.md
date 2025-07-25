@@ -1,2 +1,0 @@
-# My-firs-bog-
-seo 
